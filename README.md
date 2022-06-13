@@ -1,0 +1,1 @@
+# tyt-fizik-pdf-2022-32
